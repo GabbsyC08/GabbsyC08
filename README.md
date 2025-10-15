@@ -1,4 +1,3 @@
-## Hi there 👋
 
 ## I'm Gabby! I've been studying and practicing art and creating since I was nine.
 
